@@ -1,5 +1,5 @@
 # Summary
 
 * [MidMichigan News](midmichigan_news.md)
-* ShepherdYouthFootballProgram
+* [ShepherdYouthFootballProgram](shepherdyouthfootballprogram.md)
 
