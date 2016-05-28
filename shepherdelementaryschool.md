@@ -1,4 +1,4 @@
-# Shepherd Elementary Schools
+# Shepherd Elementary School
 
 [@shepherdele](https://twitter.com/shepherdele/status/736279660837888000)
 Congrats to Emily Halstead-1st and Sarah Warner- Kindergarten on your banners being chosen!
