@@ -1,4 +1,4 @@
-# Summary
+# Table of Contents
 
-* ShepherdElementarySchool.md
+* [Shepherd Elementary School](shepherdelementary.md)
 
