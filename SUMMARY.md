@@ -4,5 +4,5 @@
 * [ShepherdYouthFootballProgram](shepherdyouthfootballprogram.md)
 * [Shepherd Elementary School](shepherdelementaryschool.md)
 * [Shepherd High School](shepherdhighschoolmd.md)
-* Shepherd High School Baseball
+* [Shepherd High School Baseball](shepherdhighschoolbaseball.md)
 
