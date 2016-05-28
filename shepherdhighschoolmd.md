@@ -4,8 +4,9 @@
 
 Here are a few photos and a video from the Class of 2016's last week.
 
-![](screenshot.png)
+* [Video of Senior's Walk](https://vimeo.com/168389492)
 
+---
 
 ![](shs-seniors001.jpg)
 
