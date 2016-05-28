@@ -1,4 +1,4 @@
 # Summary
 
-* MidMichigan News
+* [MidMichigan News](midmichigan_news.md)
 
