@@ -1,5 +1,5 @@
 # Shepherd High School
-
+---
 ## Seniors' Last Week
 
 Here are a few photos from the 2016 Graduation class's last week.
@@ -10,7 +10,7 @@ Here are a few photos from the 2016 Graduation class's last week.
 
 ![](shs-seniors003.jpg)
 
---
+---
 
 ## Shepherd High School Announcements - Friday, May 27
 
@@ -21,4 +21,24 @@ Here are a few photos from the 2016 Graduation class's last week.
 * KNOCKERBALL is coming to Mt. Pleasant! This is a free event and will be taking place on Thursday, June 9th @ 3:00 p.m. at the Mt. Pleasant High School football field. Free hot dogs, beverages and music. Forms can be picked up in the High School office or from Kaitlyn Glowacki.
 * Varsity Boys Golf took 3rd at Districts yesterday with Alex Kachel's 85, Scott Sura's 86, Max Skeel's 87, and a 95 from Joey Yuncker. In doing this, they clinch a spot at the Regional in Chesaning next Wednesday. They will need to be in the top 3 for a berth into the State Tournament.
 
+---
+##Graduation News
 
+Graduation is Sunday, June 5th at 3:00 pm in our gymnasium. The doors will open around 2:00, or shortly thereafter when our sound checks are completed. Tickets are not needed.
+
+---
+## The Last Day of School
+
+June 10th is our last day of school for the 2015-2016 year. This is a full day, with dismissal at 2:55 pm.
+
+---
+## SHS Exam Schedule
+
+###Grades 9, 10 and 11 Exam Schedule
+* Thursday, June 9th: Exams 2nd and 4th. Exam reviews are 1st, 3rd and 5th.
+* Friday, June 10th: Exams 1st, 3rd and 5th. Exam makeups 2nd and 4th.
+
+*
+### Grade 12 Exam Schedule
+* Wednesday, May 25th: Exams 1st, 3rd and 5th. Exam Reviews are 2nd and 4th
+* Thursday, May 26th: Exams 2, and 4th. Exam makeups are 2nd and 4th.
