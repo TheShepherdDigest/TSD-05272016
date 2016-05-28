@@ -4,6 +4,7 @@
 
 Here are a few photos and a video from the Class of 2016's last week.
 
+![](screenshot.png)
 
 
 ![](shs-seniors001.jpg)
