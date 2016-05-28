@@ -3,5 +3,5 @@
 * [MidMichigan News](midmichigan_news.md)
 * [ShepherdYouthFootballProgram](shepherdyouthfootballprogram.md)
 * [Shepherd Elementary School](shepherdelementaryschool.md)
-* ShepherdHighSchool.md
+* [ShepherdHighSchool.md](shepherdhighschoolmd.md)
 
