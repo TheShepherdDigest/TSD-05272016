@@ -2,7 +2,9 @@
 ---
 ## Seniors' Last Week
 
-Here are a few photos from the 2016 Graduation class's last week.
+Here are a few photos and a video from the Class of 2016's last week.
+
+
 
 ![](shs-seniors001.jpg)
 
@@ -20,6 +22,12 @@ Here are a few photos from the 2016 Graduation class's last week.
 * Sports physicals will take place next Thursday, June 2nd after school in the high school gym. The cost is $10.00. Physical cards can be picked up in the high school/counseling offices.
 * KNOCKERBALL is coming to Mt. Pleasant! This is a free event and will be taking place on Thursday, June 9th @ 3:00 p.m. at the Mt. Pleasant High School football field. Free hot dogs, beverages and music. Forms can be picked up in the High School office or from Kaitlyn Glowacki.
 * Varsity Boys Golf took 3rd at Districts yesterday with Alex Kachel's 85, Scott Sura's 86, Max Skeel's 87, and a 95 from Joey Yuncker. In doing this, they clinch a spot at the Regional in Chesaning next Wednesday. They will need to be in the top 3 for a berth into the State Tournament.
+
+---
+## May High Flier Winner
+Congratulations to Shepherd High School Choir teacher Kyle Howard. He was awarded the High Flier Award for May.
+
+![](kylehoward-highflier.jpg)
 
 ---
 ##Graduation News
