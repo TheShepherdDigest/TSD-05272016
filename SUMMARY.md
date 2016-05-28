@@ -1,4 +1,3 @@
 # Summary
-* 
-[Shepherd Elementary School](shepherdelementary.md)
+* [Shepherd Elementary School](shepherdelementary.md)
 
